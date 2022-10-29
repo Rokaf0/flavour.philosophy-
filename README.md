@@ -1,0 +1,2 @@
+# flavour.philosophy-
+Plato lives
